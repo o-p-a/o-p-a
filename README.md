@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @o-p-a
-- 👀 I’m interested nothing
-- 🌱 I’m currently learning something bad
+- 👀 I’m interested nothing😒
+- 🌱 I’m currently learning something bad🤪
